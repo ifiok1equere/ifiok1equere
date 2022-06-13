@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about my learning journey.
 - 📫 How to reach me: https://twitter.com/equereifiok
 - 😄 Pronouns: (HE/HIM/HIS)
-
